@@ -43,4 +43,4 @@ If you have any questions or concerns about this Privacy Policy, please contact 
 
 ---
 
-© _[Current Year]_ **Chazarah Tracker**. All rights reserved.
+© _2025_ **Chazarah Tracker**. All rights reserved.
