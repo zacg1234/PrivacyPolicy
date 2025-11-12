@@ -1,4 +1,3 @@
-# 🛡️ Privacy Policy
 
 **Chazarah Tracker**  
 **Effective Date:** _11/12/2025_
